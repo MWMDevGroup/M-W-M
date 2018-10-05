@@ -1,2 +1,2 @@
 # M-W-M
-MidWest Monsta 
+MidWest Monsta. What is it?
